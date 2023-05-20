@@ -14,4 +14,4 @@
 
 ### Natan Vieira
 
-### Linkedin: https://www.linkedin.com/in/natan-vieira-433a30262
+### Linkedin: https://www.linkedin.com/in/natanvieiradev
